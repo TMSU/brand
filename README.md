@@ -1,3 +1,3 @@
 ![tag](/tag.svg)
-![TMSU smudge](/tmsu-smudge.svg)
+![TMSU turd](/tmsu-turd.svg)
 ![TMSU tag](/tmsu-tag.svg)
